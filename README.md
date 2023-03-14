@@ -1,1 +1,1 @@
-# RandomSalesDataGenerate
+BÜTÜN HER ŞEY DOSYANIN İÇERİSİNDE

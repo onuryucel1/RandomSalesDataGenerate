@@ -1,1 +1,1 @@
-BÜTÜN HER ŞEY DOSYANIN İÇERİSİNDE
+
